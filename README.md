@@ -7,3 +7,5 @@ meine Top 5 Spiele
 3. Genshin Impact
 4. Splatoon 3
 5. Spiritfarer
+
+i have no idea wht all that was
